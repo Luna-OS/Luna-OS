@@ -1,6 +1,6 @@
 🌙 Über mich
 
-Hey, ich bin ein leidenschaftlicher Entwickler, der gern im Licht des Mondes programmiert.
+Hey, ich bin eine leidenschaftliche Entwicklerin, die gern im Licht des Mondes programmiert.
 Meine Projekte sind wie kleine Monde – kreisend um die Ideen, die mich inspirieren, und immer offen für neue Entdeckungen. 🌌
 
 ✨ Was du bei mir findest:
